@@ -1,1 +1,1 @@
-# Analyzing-the-Online-Marketing-Strategy-Analysis-of-American-University
+# Analyzing-the-Online-Marketing-Strategy-of-American-University
